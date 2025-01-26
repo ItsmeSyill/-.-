@@ -7,4 +7,6 @@ sometimes my mood change, and very easily get overwhelmed or feeling sense of dr
 - ⛔️ afk | Busy
 - 🌙 offtab | away
 - 🗨 looking for chat
-!! no roleplay !! im not very good about it!! 💦🙏🏻
+!! no roleplay 🎭 !! im not very good about it!! 💦🙏🏻
+
+ᯓᡣ𐭩 Thank you so much for stopping by and read ^_^ 🎀
