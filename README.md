@@ -1,2 +1,10 @@
-# -.-
-𝘛𝘩𝘦 𝘥𝘦𝘴𝘤 𝘰𝘧 𝘵𝘩𝘪𝘴 𝘱𝘢𝘨𝘦 𝘪𝘴 𝘨𝘰𝘯𝘯𝘢 𝘣𝘦 𝘤𝘩𝘢𝘯𝘨𝘦 𝘪𝘧 𝘪 𝘸𝘢𝘯𝘵 𝘵𝘰 𝘢𝘥𝘥𝘦𝘥 𝘯𝘦𝘸 𝘴𝘵𝘶𝘧𝘧 𝘴𝘰𝘰, 𝘱𝘭𝘦𝘢𝘴𝘦 𝘤𝘰𝘮𝘦 𝘢𝘨𝘢𝘪𝘯.
+
+⋆｡𖦹°‧★ About Me 💗
+Hello! My Name is Syilla or you can call me by my display name Koyomi(こよみ) it's fine (or whatever idc). I'm very much down to every conversation as such as franchise and stuff that made me intriguing!!. ohh just to be clear if you want to chat just simply by whispering me ( unless i say otherwise then, i hope you can respect it :'³ ) 
+
+⚘( ၴႅၴ BYI . before you interact
+sometimes my mood change, and very easily get overwhelmed or feeling sense of dread/uneasy since im very² shy myself, but that doesen't stop me for being polite and nice about it!! if my skin's eye are close or half closed that means i'm either offtab/afk!. i'm very private abt my religion (only my long moots know what i'am) and very unintrested on religion. (ihopeyoucanrespectthisaswell-) also here's some icon im gonna be used!
+- ⛔️ afk | Busy
+- 🌙 offtab | away
+- 🗨 looking for chat
+!! no roleplay !! im not very good about it!! 💦🙏🏻
